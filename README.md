@@ -1,1 +1,1 @@
-# jareddickman.github.io
+Jared-Dickman.com
